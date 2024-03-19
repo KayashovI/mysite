@@ -10,6 +10,28 @@
         <tr>
             <td>
                 <!-- Шапка сайта: название сайта и фио разработчика -->
+                gusiprgjort=-$_COOKIEryt\rty\wrt\trwgrt
+                gc_collect_cyclesrtg
+                wsrtgwt
+
+                <table>wertgewqr
+                    gc_collect_cyclesewrgdf
+                    gc_collect_cyclesdsg
+                    register_shutdown_functioner
+                    gc_collect_cycleswertg
+                    dsf
+                    gc_collect_cyclessgs
+                </table>
+                retgew5t54
+                retgew5t54tewr
+                gc_collect_cycleswertg45
+                get_browserrg
+                feofr5gf54
+                gzfileregdf
+                g
+                54w
+                token_get_allw
+                gzwriteerg5
             </td>
         </tr>
         <tr>
